@@ -67,4 +67,4 @@ If this privacy policy is updated, the changes will be posted on this page with 
 
 ## Contact
 
-If you have questions about this privacy policy, contact: **[YOUR_EMAIL]**
+If you have questions about this privacy policy, contact: tehmezz@gmail.com
